@@ -1,21 +1,22 @@
 Generation No. 1  
   
 BENJAMIN1 TAULBUT was born Abt. 1755 in may be Hampshire, Parish Unknown, and died 1835
- in Fareham, Hampshire,England. He married LEAH BOYCE 8 November 1785 in Upham, Hampshire,
-  England, daughter of MICHAEL BOYCE and MARY. She was born Abt. 1758 in County unknown,
-   Parish Unknown, and died 1840 in Fareham, Hampshire, England, Aged 82.  
+in Fareham, Hampshire,England. He married LEAH BOYCE 8 November 1785 in Upham, Hampshire,
+England, daughter of MICHAEL BOYCE and MARY. She was born Abt. 1758 in County unknown,
+Parish Unknown, and died 1840 in Fareham, Hampshire, England, Aged 82.  
   
 Notes for BENJAMIN TAULBUT:  
-According to Janet Taulbut... The Taulbut's c1700-1800 were Agricultural Labourers in the Upham Area of Hampshire  
+According to Janet Taulbut... The Taulbut's c1700-1800 were Agricultural Labourers in the Upham 
+Area of Hampshire  
   
 Added 10/1/2000: Researching Talbot's throughout Hampshire... The parish's of Broughton,
 Crux Easton and St Mary Bourne appear to show a number of Talbot's... Thats where we need
 to look next in the hunt for Benjamin's parents... best to start with the marriages and
 then baptisms as they may well show either the spelling of Taulbut, if they could write,
 or Benjamin's baptism record probably with the surname spelt Talbot. I also need to check
-   out the Richard Talbot(sometimes spelt) Talbut of Titchfield. There is a will for a Richard
-    Talbot and Derek has sent details of a Richard Talbot who help built the dyke that cut
-     titchfield off from the sea, destroying it as a port.  
+out the Richard Talbot(sometimes spelt) Talbut of Titchfield. There is a will for a Richard
+Talbot and Derek has sent details of a Richard Talbot who help built the dyke that cut
+titchfield off from the sea, destroying it as a port.  
   
 Added 14/1/2000: The IGI for Sussex shows that a George Talbot and Mary (nee Chatsfield),
 baptised a Benjamin Talbot on 09 April 1754 in the town of Arundel, West Sussex. George
@@ -91,7 +92,7 @@ More About LEAH TAULBUT:
 Baptism: 5 June 1786, Upham, See Hardcopy Upham Parish Registry, Held in Hampshire Records Office  
   
 2. ii. BENJAMIN TAULBUT, b. Abt. 1792, Supposedly Upham (see 1851 Fareham, Hampshire Census);
- d. 28 March 1870, Trinity Street, Fareham, Hampshire, England.  
+d. 28 March 1870, Trinity Street, Fareham, Hampshire, England.  
 iii. JAMES TAULBUT, b. 1793, Fareham, Hampshire, England; d. 1809, Fareham, Hampshire, England.  
   
 More About JAMES TAULBUT:  
@@ -99,7 +100,7 @@ Baptism (LDS): 13 October 1793, Fareham, Hampshire, England, IGI B# 7126508
 Burial: 1 July 1809, St Peter & Paul Church, Fareham, Hampshire, England  
   
 3. iv. CHARLES TAULBUT, b. Abt. 1795, Fareham, Hampshire, England, IGI B# 7126508; d. March 1875,
- Trinity Street, Fareham, Hampshire,England.  
+Trinity Street, Fareham, Hampshire,England.  
 v. WILLIAM TAULBUT, b. 1798, Fareham, Hampshire,England; d. 1798, Fareham, Hampshire, England.  
   
 More About WILLIAM TAULBUT:  
