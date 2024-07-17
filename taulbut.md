@@ -1,6 +1,6 @@
-Here’s a revised version of the text incorporating these suggestions:
+This is the first generation of the TAULBUT family history, from Hampshire, England. 
 
-This is the first generation of the Taulbut family history. The first Taulbut who spelled his last name as TAULBUT is BENJAMIN1 TAULBUT, born about 1755 (exact place of birth unknown). He married LEAH BOYCE on 8th November 1785 in Upham, Hampshire, England. They moved to Fareham around 1793. Benjamin1 Taulbut died in 1835 in Fareham, Hampshire, England.
+The first Taulbut who spelled his last name as TAULBUT is BENJAMIN1 TAULBUT, born about 1755 (exact place of birth unknown). He married LEAH BOYCE on 8th November 1785 in Upham, Hampshire, England. They moved to Fareham around 1793. Benjamin1 Taulbut died in 1835 in Fareham, Hampshire, England.
 
 LEAH BOYCE was born about 1758 in Hampshire and died in 1840 in Fareham, Hampshire, England, aged 82. Her baptism record is dated 22nd June 1760 in Upham, Hampshire, and is recorded in the Baptism Latter Day Saints record for Fareham, Hampshire, England (IGI Number 7126508, sheet 99). Leah Boyce was buried on 3rd July 1840 in Saint Peter & Paul Church, Fareham, Hampshire, England. The burial record (Number 2182) is under the name of LEAH TALBOTT, and I correlated this using her age at death (82) with her birth year.
 
@@ -12,7 +12,7 @@ Marriage banns for Benjamin1 Taulbut and Leah Boyce were recorded in the Upham P
 
 They were married on 8th November 1785, as recorded in the Hampshire records office.
 
-Children of Benjamin1 Taulbut and Leah Boyce:
+Children of Benjamin1 Taulbut and Leah Boyce are:
 
 	1.	LEAH2 TAULBUT: Born 1786 in Upham, Hampshire, England. Baptized on 5th June 1786 in Upham (see Upham Parish Registry, Hampshire Records Office). No record of death.
 	2.	BENJAMIN2 TAULBUT: Born about 1792 in Upham, Hampshire, England (as shown in the 1851 Fareham, Hampshire Census). Died on 28th March 1870 in Trinity Street, Fareham, Hampshire, England.
